@@ -1,3 +1,5 @@
-Jaiden.  Aroace
+Juggets/Jaiden/Tilín.     Asexual. 
 
-![image](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQovTCTc3znapCjnrQngVK1tPT-NiIm2PKxDuOwOQiwUg&s)
+![image]()
+
+[strawpage](https://straw.page/make?id=redbow)
